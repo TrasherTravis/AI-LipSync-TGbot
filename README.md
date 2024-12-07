@@ -22,6 +22,6 @@ https://github.com/TrasherTravis/AI-LipSync-TGbot/assets/69963432/3d89d130-f8fb-
 
 ![image](https://github.com/TrasherTravis/AI-TeleGramBot/assets/69963432/6cf67131-db08-4fd3-8e2f-6e491d48e98b)
 
-TG: Travis_BZ | Discord: travis#9295
+TG: travis_rx | Discord: travis_rx
 
 
